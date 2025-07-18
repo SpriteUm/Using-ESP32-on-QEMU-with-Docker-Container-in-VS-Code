@@ -1,2 +1,2 @@
 รูปผลการทดลอง
-<img width="1188" height="668" alt="image" src="https://github.com/user-attachments/assets/724513e5-fc1e-4177-bb57-a9b152a6fce5" />
+<img width="1028" height="380" alt="518888554_1237303041210048_4330096237532847613_n" src="https://github.com/user-attachments/assets/fba57812-4b05-4512-9fe2-05bfbe3a2e5f" />
